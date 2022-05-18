@@ -1,0 +1,1 @@
+# arukikata2022
